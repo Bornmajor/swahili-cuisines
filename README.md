@@ -1,3 +1,5 @@
+<img src="https://github.com/user-attachments/assets/4f698da7-d96a-4ad0-806c-ce290432f2c8" width="800"> 
+
 # Swahili Cuisines
 
 ### Overview
